@@ -1,1 +1,0 @@
-# ETC-tech-C-
